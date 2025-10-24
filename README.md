@@ -1,0 +1,1 @@
+# Seu-caba-o-como-deixa-seu-GitHub-aberto-Sorte-que-sou-amigo-e-n-o-inimigo
